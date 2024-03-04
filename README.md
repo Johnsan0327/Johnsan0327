@@ -26,7 +26,7 @@ I am passionate about delivering exceptional results and exceeding targets. My s
 ## Get in Touch
 
 - 📫 You can reach me via email at johnsan2k@gmail.com
-- 💬 Let's connect on [LinkedIn]((https://www.linkedin.com/in/marshal-johnsan-20aa312b6/))
+- 💬 Let's connect on (https://www.linkedin.com/in/marshal-johnsan-20aa312b6/)
 - 🐦 Follow me on Instagram(https://www.instagram.com/__j__m__j/)
 
 ## Fun Fact
