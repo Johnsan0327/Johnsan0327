@@ -23,11 +23,6 @@ Welcome to my GitHub profile!
 I am passionate about delivering exceptional results and exceeding targets. My strong attention to detail, outstanding communication skills, and ability to work with others make me an asset to any team. I am excited about the opportunity to contribute my skills and experience to a dynamic team and help achieve the company's goals
 
 
-## Get in Touch
-
-- 📫 You can reach me via email at johnsan2k@gmail.com
-- 💬 Let's connect on (https://www.linkedin.com/in/marshal-johnsan-20aa312b6/)
-- 🐦 Follow me on Instagram(https://www.instagram.com/__j__m__j/)
 
 ## Fun Fact
 
